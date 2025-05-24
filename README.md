@@ -1,0 +1,1 @@
+# ANMI020_lawsonibacter_microdiversity
